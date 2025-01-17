@@ -1,7 +1,8 @@
 # chime-demo
-<br>
 This is my first github repository.
+<br>
 👋 Hi, I’m @sweetchimingbell
+<br>
 👀 I’m interested in development of creative and aesthetic apps
 🌱 I’m currently learning learning C++ and DSA
 💞️ I’m looking to collaborate
