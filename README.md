@@ -1,5 +1,5 @@
 # chime-demo
-This is my first github repository.
+This is my first Github Repository.
 <br>
 👋 Hi, I’m @sweetchimingbell
 <br>
