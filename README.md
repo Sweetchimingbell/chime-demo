@@ -9,9 +9,9 @@ This is my first Github Repository.
 <br>
 💞️ I’m looking to collaborate
 <br>
-📫 How to reach me On my Instagram Handle chimingwithchime
+📫 How to reach me On my Instagram Handle @chimingwithchime
 <br>
 😄 Pronouns: SHE/HER
 <br>
-⚡ Fun fact: I LOVE AESTHETICALLY PLEASING STUFFS AND FASHION do check out my instagram handle chimingwithchime
+⚡ Fun fact: I LOVE AESTHETICALLY PLEASING STUFFS AND FASHION do check out my instagram handle @chimingwithchime
 
